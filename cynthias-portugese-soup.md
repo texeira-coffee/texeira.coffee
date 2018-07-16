@@ -40,7 +40,7 @@ Cynthia Gonsalves, 15 July 2018
 
 ## Notes
 
-Linguiça is found in most Bay Area and Central Valley stores. You may have to go to a specialty market or butchers in other parts of the Mainland that aren't New Bedford or Fall River. You could substitute kiebasa and sweet paprika, but Cynthia warns, "it won't be Portuguese!"
+Linguiça is found in most Bay Area and Central Valley stores. You may have to go to a specialty market or butchers in other parts of the Mainland that aren't New Bedford or Fall River. You could substitute kielbasa and sweet paprika, but Cynthia warns, "it won't be Portuguese!"
 
 Cooking the cabbage in the pressure cooker will break it down. If you want crunchier cabbage, add it after the second pressure cooker cycle, bring the pot to a simmer and cook it to the desired doneness, then add the beans.
 
