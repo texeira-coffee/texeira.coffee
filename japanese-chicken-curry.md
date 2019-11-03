@@ -6,7 +6,7 @@ Instead of using curry bricks, make your own curry roux.
 
 Honey and apple provide the sweetness. 
 
-Based on [a recipie from Marion's Kitchen](https://www.marionskitchen.com/japanese-chicken-curry/).
+Based on [a recipe from Marion's Kitchen](https://www.marionskitchen.com/japanese-chicken-curry/).
 
 ## Ingredients
 
@@ -57,6 +57,6 @@ Emma Humphries, 2 November 2019
 
 Japanese curry is a 19th century creation. The Imperial Navy started serving it along with rice to prevent scurvy. The Navy learned about curry from the British Navy, who had adpated meat based curries from colonized India. 
 
-Yokosuma, the base of the Japanese Self-Defense Force's naval fleets is the home of Japanese curry. Cooks from the Navy, after mustering out, open restaurants or join existing restaurants serving curry following the recipie specific to the ships they served on. 
+Yokosuka, the base of the Japanese Self-Defense Force's naval fleets, is the home of Japanese curry. Cooks from the Navy, after mustering out, open restaurants or join existing restaurants serving curry following the recipie specific to the ships they served on. 
 
 I've modified the Marion's Kitchen recipie, adding a little more butter, and using a grated apple instead of apple juice. 
