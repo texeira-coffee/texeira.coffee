@@ -51,9 +51,6 @@ Bring the pot to a simmer, turn to low and let cook for 45 minutes, and the pota
 
 Serve with rice, Japanese-style hot pepper, and pickled ginger.
 
-
-Remove the ham hocks from the broth, and carve the meat off the bones. Cut into bite sized pieces. Return the meat to the pressure cooker. Don’t toss out the rind and bits of fat!  It was good enough for my great-grandma and it’s good enough for me. 
-
 Emma Humphries, 2 November 2019
 
 ## Notes
