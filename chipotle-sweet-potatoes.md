@@ -32,4 +32,6 @@ Scrape into a rectangular pan and smooth the top with a spatula.
 
 Sprinkle with smoked paprika. 
 
-Finish in a 400 F oven for 15 to 30 minutes (if refrigerated) un-covered until a crust forms. Serve.
+At this point you can cover the the dish and put it in the refrigerator if you were making it ahead.
+
+Finish in a 400 F oven for 15 to 30 minutes (depending on if you are reheating it from the refrigerator) un-covered until a crust forms. Serve.
