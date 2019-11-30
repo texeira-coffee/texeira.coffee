@@ -2,7 +2,7 @@
 
 Serves 6 to 10
 
-Based on a recipie I found a long time ago in the San Jose Mercury News.
+Based on a recipe I found a long time ago in the San Jose Mercury News.
 
 This dish will have some heat, use less chipotles if you want it milder.
 
