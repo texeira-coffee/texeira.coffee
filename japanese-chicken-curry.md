@@ -60,3 +60,5 @@ Japanese curry is a 19th century creation. The Imperial Navy started serving it 
 Yokosuka, the base of the Japanese Self-Defense Force's naval fleets, is the home of Japanese curry. Cooks from the Navy, after mustering out, open restaurants or join existing restaurants serving curry following the recipie specific to the ships they served on. 
 
 I've modified the Marion's Kitchen recipie, adding a little more butter, and using a grated apple instead of apple juice. 
+
+Elena Yamamoto, a chef in NYC does not make a roux. [She starts with a base of carmelized onions to which she adds a sliced apple, curry powder, and dashi, then blends with an immersion blender in the pot](https://www.youtube.com/watch?v=VEa3ruj_Ujc). 
