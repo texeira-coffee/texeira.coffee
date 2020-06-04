@@ -8,7 +8,7 @@ Recipe makes one large serving or can be split with another.
 
 - 100 g of spaghetti
 - 1 6 oz can of tuna packed in olive oil
-- 1 small shallot minced or 2-3 cloves minced
+- 1 small shallot minced or 2-3 cloves of garlic, minced
 - 2 tablespoons tomato paste (the kind in a tube)
 - 2-3 anchovies or 1 tablespoon anchovy paste
 - 1 tablespoon capers, rinsed
