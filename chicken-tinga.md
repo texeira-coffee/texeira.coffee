@@ -14,7 +14,7 @@ Makes 4 servings.
 - 2 lbs boneless, skinless chicken thighs
 - 1 7oz can chipotle peppers in adobo sauce
 - 1 4oz can chopped hot green chilis (Hatch or similar)
-- 1 tsp chicken stock powder
+- 1 tsp chicken stock powder (Lee Kung Kim or similar)
 - Juice of one half lemon
 - Finely chopped cilantro
 
@@ -40,7 +40,7 @@ Raise heat to a vigourous boil and let sauce reduce to half or less.
 
 Shread chicken with forks.
 
-Once liquid has reduced and thickened, stir back in shredded chicken. Add lemon juice and cilantro. Stir to combine. 
+Once liquid has reduced and thickened, stir back in shredded chicken. Add lemon juice, cilantro, and plenty of freshly ground black pepper. Stir to combine. 
 
 Serve with beans, guacamole, and other sides as well as plenty of tortilias. 
 
