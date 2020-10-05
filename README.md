@@ -5,3 +5,4 @@
 * [Chipotle sweet potatoes](/chipotle-sweet-potatoes)
 * [Frites (fries)](/frites)
 * [Spaghetti with tuna and capers](/spaghetti-with-tuna-and-capers)
+* [Chicken tinga](/chicken-tinga)
