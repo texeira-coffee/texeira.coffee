@@ -2,7 +2,7 @@
 
 This is a from-the-pantry version of Chicken Tinga, using canned peppers. 
 
-Be sparing with the water you add, you will reduce the sauce once the chicken cooks. 
+Be sparing with the amount of water you add since you will reduce the sauce once the chicken cooks. 
 
 Makes 4 servings. 
 
@@ -20,9 +20,9 @@ Makes 4 servings.
 
 ## Directions
 
-In a dutch oven or deep, wide pot, saute diced onion in 2 tbsps of oil over medium high heat until soft and starting to brown. 
+In a dutch oven or deep, wide pot, saute diced onion in 2 tbsp of oil over medium heat until soft and starting to brown. 
 
-Add garlic and cook until fragrant. 
+Add the crushed garlic and cook until fragrant. 
 
 Add ground cumin seed and let bloom (around 30 seconds.)
 
@@ -34,7 +34,7 @@ Raise heat to high and bring to a simmer.
 
 Reduce heat to low. Cover. Let cook for an hour. 
 
-Remove cover and chicken pieces to bowl. 
+Remove cover and transfer chicken pieces to bowl. 
 
 Raise heat to a vigourous boil and let sauce reduce to half or less. 
 
