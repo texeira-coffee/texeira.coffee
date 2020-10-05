@@ -6,9 +6,11 @@ Be sparing with the amount of water you add since you will reduce the sauce once
 
 Makes 4 servings. 
 
+Loosely adapted from Chef John's version.
+
 ## Ingredients
 
-- 1 tbsp cumin seed ground in a mortal and pestle
+- 1 tbsp cumin seed ground in a mortar and pestle
 - 3-4 cloves garlic ground with a 1/4 teaspoon salt in a mortar and pestle
 - 1 small to medium onion, diced
 - 2 lbs boneless, skinless chicken thighs
@@ -46,7 +48,7 @@ Serve with beans, guacamole, and other sides as well as plenty of tortilias.
 
 Meat can also be used for tacos or burritos. 
 
-## Note
+## Notes
 
 If you use bone-in thighs or leg quarters, increase the amount of chicken to 2.5 to 2.75 lbs to account for bones.
 
@@ -55,3 +57,5 @@ If you use bone-in reduce the amount of chicken stock powder you use, but add a 
 You could substitute dried peppers for the chipotle if you rehydrate them in hot water after removing stems and seeds.
 
 Substitute two finely chopped jalepeno or serrano peppers for the canned green chilis.
+
+The idea behind this is "if I'm in Europe and need a burrito fix, I could probably order the canned chilis online and use lavash instead of a tortilla."
