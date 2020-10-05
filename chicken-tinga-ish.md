@@ -1,6 +1,6 @@
-# Chicken Tinga
+# Chicken Tinga-ish
 
-This is a from-the-pantry version of Chicken Tinga, using canned peppers. 
+This is a from-the-pantry version of Chicken Tinga, using canned peppers, and no tomatos.
 
 Be sparing with the amount of water you add since you will reduce the sauce once the chicken cooks. 
 
