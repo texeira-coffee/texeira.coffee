@@ -6,4 +6,4 @@
 * [Frites (fries)](/frites)
 * [Spaghetti with tuna and capers](/spaghetti-with-tuna-and-capers)
 * [Chicken tinga-ish](/chicken-tinga-ish)
-* [Turkey, lentil, bean, and barley soup](/turkey-lentil-bean-and-barley-soup)
+* [Turkey, lentil, bean, and barley soup](/turkey-lentil-bean-barley-soup)
