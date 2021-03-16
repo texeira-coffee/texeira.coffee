@@ -1,6 +1,6 @@
 # Sweet potato curry
 
-Sweet potatos work well with Thai curry paste. For a splash of color, add a small purple sweet potato, diced.
+Sweet potatoes work well with Thai curry paste. For a splash of color, add a small purple sweet potato, diced.
 
 ## Ingredients 
 
