@@ -1,4 +1,4 @@
-# Recipes we love
+# Cynthia and Emma's recipes
 
 * [Cynthia's Portuguese soup](/cynthias-portugese-soup)
 * [Japanese chicken curry](/japanese-chicken-curry)
