@@ -2,6 +2,8 @@
 
 Put it on fries, cheesesteaks, burgers, chips, but not your cat.
 
+![A red-orange cheese sauce on root veggie fries, garnished with sesame seeds and seaweed](kimchi-cheese-sauce.jpg)
+
 ## Ingredients 
 
 - 8oz corsely grated cheese (cheddar and/or gruyère)
