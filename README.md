@@ -9,4 +9,4 @@
 * [Turkey, lentil, bean, and barley soup](/turkey-lentil-bean-barley-soup)
 * [Sweet potato curry](/sweet-potato-curry)
 * [Kimchi cheese sauce](/kimchi-cheese-sauce)
-* [Goulash Peralta](/goulash-perlata)
+* [Goulash Peralta](/goulash-peralta)
