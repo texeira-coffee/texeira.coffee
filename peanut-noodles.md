@@ -1,12 +1,14 @@
 # Peanut Noodles
 
-Makes two large servings
+Makes two large servings.
 
 ## Ingredients 
 
 * 250 to 500 grams protein of your choice
 * 500 grams noodles: cooked, drained, and rinsed in cold water
   - Reserve 250ml of the cooking water (approx 1 cup) for later
+* 2-3 green onions, sliced and divided between whites and greens
+* A hand full of unsalted roasted and shelled peanuts
 
 ### For the Sauce
 
@@ -19,9 +21,7 @@ Makes two large servings
 * 1 tsp MSG
 * 1 tsp ground white pepper
 * 1 tbsp palm or brown sugar
-
-* 2-3 green onions, sliced and divided between whites and greens
-* A hand full of unsalted roasted and shelled peanuts
+* A knob of ginger, about the size of the top joint of your thumb, grated
 
 ## Directions
 
@@ -29,7 +29,7 @@ Prepare the noodles, remember to reserve some of the cooking water.
 
 Cook your protein through, to safe temperature and reserve.
 
-Mix the ingredients for the sauce in a small bowl. Add the reserved cooking water and stir it in.
+Combine and mix the ingredients for the sauce in a small bowl. Add the reserved cooking water and stir it in.
 
 Heat a wok over high heat until smoking, then turn heat to medium and add 3 tablespoons of a high heat oil. Peanut oil is recommended. Add the whites of the green onions stirring and tossing with vigor to prevent burning.
 
@@ -50,4 +50,6 @@ Through trial and error, I found the best way to get a sauce that's silky and cl
 Spaghetti will work, but a wide, flat alkaline noodle is better. 
 
 I've tried this with chopped up chicken thighs, ground (minced) pork, and beef. Have not tried it with tofu.
- 
+
+I make no claims to authenticity. There are a lot of peanut noodle dishes out there. Some have a cold sauce on cold noodles. Some appear to be variations on sesame noodles. People adapt dishes to what ingredients are available. Tomato paste spread on a tortilla is a pizza, as anyone who lived aboard the International Space Station.
+
