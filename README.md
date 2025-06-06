@@ -10,3 +10,5 @@
 * [Sweet potato curry](/sweet-potato-curry)
 * [Kimchi cheese sauce](/kimchi-cheese-sauce)
 * [Goulash Peralta](/goulash-peralta)
+* [Peanut Noodles](/peanut-noodles)
+
